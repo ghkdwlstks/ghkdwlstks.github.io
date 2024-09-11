@@ -1,1 +1,0 @@
-# ghkdwlstks.github.io
